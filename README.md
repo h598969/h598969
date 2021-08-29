@@ -1,0 +1,3 @@
+Sivert Sætre
+Dataingeniør
+HVL
